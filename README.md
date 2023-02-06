@@ -1,4 +1,4 @@
-# Academia Industry Experience
+# Academia Industry Experience in America
 
 ![image](AcademiaIndustryExperience.jpg)
 
