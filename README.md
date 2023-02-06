@@ -2,6 +2,8 @@
 
 ![image](AcademiaIndustryExperience.jpg)
 
+![image](Recommendation.jpg)
+
 ![image](EthicsandExcellence.png)
 
 ![image](USCopyrightCertificate.png)
