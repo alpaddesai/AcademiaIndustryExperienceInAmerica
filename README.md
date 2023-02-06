@@ -2,7 +2,7 @@
 
 ![image](AcademiaIndustryExperience.jpg)
 
-![image](Recommendation.jpg)
+![image](RecommendationsReferences.jpg)
 
 ![image](EthicsandExcellence.png)
 
